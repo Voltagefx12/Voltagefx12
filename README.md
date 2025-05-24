@@ -98,7 +98,7 @@
  <br>
 <h2 align="center"> ᴡᴀʀɴɪɴɢ
  </h2>
-ᴅᴏɴ'ᴛ ᴄᴏᴘʏ ᴡɪᴛʜᴏᴜᴛ ᴘᴇʀᴍɪssɪᴏɴ
+    ᴅᴏɴ'ᴛ ᴄᴏᴘʏ ᴡɪᴛʜᴏᴜᴛ ᴘᴇʀᴍɪssɪᴏɴ
 > **`𝐁𝐞𝐬𝐭 𝐀𝐮𝐭𝐨𝐦𝐚𝐭𝐞𝐝 𝐖𝐡𝐚𝐭𝐬𝐚𝐩𝐩 𝐁𝐨𝐭`**
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
